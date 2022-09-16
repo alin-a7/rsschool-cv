@@ -4,7 +4,7 @@
 
 Phone: +38 068 1299648
 
-E-mail: almaksim@gmail.com
+E-mail: alma@gmail.com
 
 
 ### Briefly About Myself:
